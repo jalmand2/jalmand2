@@ -1,4 +1,4 @@
-![](https://giphy.com/gifs/the-messengers-DOmoqqHVkhLos)
+![](https://media.giphy.com/media/DOmoqqHVkhLos/giphy.gif)
 
 # Hello! Welcome to my Github Profile 👋
 
