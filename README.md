@@ -5,5 +5,5 @@
 About Moi
 ---
 CSU Graduate 2022 🎓🗞 <br>
-UCF Full Stack Web Development Graduate 2022 🎓🗞 <br>
+UCF Coding Bootcamp Graduate 2022 -- Full Stack Web Development 🎓🗞 <br>
 Bartender/Server en route to Coding Career 👩🏽‍💻 <br>
